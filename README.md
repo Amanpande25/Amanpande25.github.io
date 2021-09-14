@@ -1,1 +1,1 @@
-# https://lnding.Amanpande25.github.io
+# https://Amanpande25.github.io
